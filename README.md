@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Kuro
+- 👀 I’m interested in : Computer Science, Cyber Sequrity, Machine learning, Game/App development, Robotics and microcontrollers, Pc tech, Cinematography, Cgi, etc. Computer and Tech related
+- 📫 How to reach me :
+- Instagram: https://www.instagram.com/1_hi_im_kuro/
